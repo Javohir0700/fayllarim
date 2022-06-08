@@ -1,0 +1,2 @@
+# fayllarim
+shaxsiy faylla
